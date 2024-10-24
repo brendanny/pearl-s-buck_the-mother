@@ -1,0 +1,1 @@
+This ebook has been published by [Standard Ebooks](https://standardebooks.org/ebooks/pearl-s-buck/the-mother) and code hosting transferred to the [Standard Ebooks GitHub organization](https://github.com/standardebooks/pearl-s-buck_the-mother).
